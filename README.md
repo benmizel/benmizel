@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **bemizel@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ufzfTObTzSphroKKh0J9Jk_3dFjnQDD6/view?usp=sharing](https://drive.google.com/file/d/1ufzfTObTzSphroKKh0J9Jk_3dFjnQDD6/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ufzfTObTzSphroKKh0J9Jk_3dFjnQDD6/view?usp=sharing](https://drive.google.com/file/d/1ZOlwFzJXl2e40bTmzHJiXjEWp-2D-7tU/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
